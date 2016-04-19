@@ -1,1 +1,1 @@
-# discovery
+# or many thousands of years, humanity, with a few exceptions, did not recognize or understand the concept of the Solar System. Most people up to the Late Middle Ages–Renaissance believed Earth to be stationary at the centre of the universe and categorically different from the divine or ethereal objects that moved through the sky. 
